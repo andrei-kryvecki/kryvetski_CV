@@ -1,1 +1,1 @@
-# kryvetski_CV
+# https://andrei-kryvecki.github.io/kryvetski_CV/
